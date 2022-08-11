@@ -1,1 +1,1 @@
-# gun-sim
+# if ur reading this ur a faggot
